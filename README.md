@@ -1,1 +1,12 @@
-# tarea4.github.io
+# tarea4.github.io![ima13](https://github.com/user-attachments/assets/f945eacd-b0b1-4af7-b085-d9b4d77ed176)
+![ima12](https://github.com/user-attachments/assets/2f0094ba-68f9-4645-87dd-aaa1e1cb1a55)
+![ima6](https://github.com/user-attachments/assets/c3371873-4644-42a8-9cd5-769134077f1f)
+![ima5](https://github.com/user-attachments/assets/04a9ad26-4302-4cdd-8dbc-f1f440ac2ac9)
+![ima2](https://github.com/user-attachments/assets/fb35ba4a-480e-4fb4-b235-77c35f6dff87)
+![balzar](https://github.com/user-attachments/assets/1d7e915b-9401-48b7-89d3-0bc5d2f0ea6c)
+![ima2](https://github.com/user-attachments/assets/15b90a28-6256-4639-9758-9fbb079fdae1)
+![mujer](https://github.com/user-attachments/assets/4a6ab98a-5263-4f0b-89fc-8af36801704c)
+![pollo](https://github.com/user-attachments/assets/0265ad4c-91a5-4eb2-a582-58857843c007)
+![san](https://github.com/user-attachments/assets/11ad7938-ee09-4570-b535-82b620ea6c9c)
+![salto](https://github.com/user-attachments/assets/75066ada-12ea-44b8-93bb-ad75c94f9bd1)
+![rio](https://github.com/user-attachments/assets/cdf77150-c13c-4886-a079-85f66190fb47)
